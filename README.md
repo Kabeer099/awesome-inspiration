@@ -27,6 +27,7 @@
 
 - [Nobody’s going to help you. It’s all up to you.](https://sivers.org/up2you)
 - [Elon Musk: Success Story](https://www.investopedia.com/university/elon-musk-biography/elon-musk-success-story.asp)
+- [Steve Jobs: Your time is limited, so don't waste it living someone else's life](https://www.britannica.com/biography/Steve-Jobs)
 
 ## Quotes
 
